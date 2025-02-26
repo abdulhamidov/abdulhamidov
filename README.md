@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Abdulhamidov Sardor  I am from Uzbekistan
-- 👀 I’m interested in making Web-sites
+- 👀 I’m interested in making Web Sites , Games, 3d designing
 - 🌱 I’m currently learning ...
 - You can reach me on 
 Telegram @MuslimProger
